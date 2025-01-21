@@ -114,7 +114,7 @@ This NFT initiative ensures that early supporters have something tangible to hol
 
 ---
 
-## Why ReForest AI?
+## Why ReForest AI Is Different :
 
 1. **Massive Market Potential:**
    - The global carbon credit market is projected to reach $50 billion by 2030. By tokenizing carbon credits, ReForest AI positions itself at the forefront of this emerging industry.
